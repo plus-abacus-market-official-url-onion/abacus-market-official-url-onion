@@ -84,4 +84,6 @@ Remember to always prioritize your security when engaging with any darknet platf
 
 
 
-Update: url is active and operational
+
+
+Update:  Monday 21 July 2025

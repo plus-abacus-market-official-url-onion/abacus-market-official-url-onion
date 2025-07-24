@@ -86,4 +86,6 @@ Remember to always prioritize your security when engaging with any darknet platf
 
 
 
-Update:  Monday 21 July 2025
+
+
+Update: link is responsive and live
